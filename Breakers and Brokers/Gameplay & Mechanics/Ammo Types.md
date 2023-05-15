@@ -1,0 +1,1 @@
+The game will have various types of ammo designed to make the players more effective against various threats they face. Many of the vehicle ammo types can be made on the spot by the Breaker's "ammo cooker," while special ammo for personal weapons might be either purchased or found onboard a ship deralict. 
